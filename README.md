@@ -1,7 +1,7 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Naufal Helmy Mustofa**.<br>
+Hi, I’m **Naufal Helmy Mustofa**.<br>
 
-Saya seorang **Mahasiswa S1 jurusan Matematika** sedang belajar di [Dicoding](https://www.dicoding.com/).<br>
+, **Mathematics student at Universitas Sebelas Maret** with a strong interest in Artificial Intelligence. To achieve my goals, I continuously develop myself by learning and solving problems through logical thinking. I am highly dedicated to improving my skills and applying them to make a positive contribution to the people.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/naufal-helmy-mustofa-a02392289/)ku ya.
+🚀 If you are interested in getting to know me, please follow my account [Linkedin](https://www.linkedin.com/in/naufal-helmy-mustofa-a02392289/).
