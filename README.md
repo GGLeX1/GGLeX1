@@ -1,4 +1,4 @@
-# Halo semua! 
+# Hello, everyone!🖐🏻
 
 Hi, I’m **Naufal Helmy Mustofa**.<br>
 
